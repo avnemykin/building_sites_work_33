@@ -24,5 +24,4 @@
  
 ![image](https://user-images.githubusercontent.com/55104614/208217632-5048ddd3-7065-4bfb-877c-58a9ccad47b8.png)
 
-У Вас всё получится!
 
